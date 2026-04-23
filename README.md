@@ -8,9 +8,9 @@
 
 ok SO....you're a pathetic noob READ THIS BC IT'S IMPORTANT !!
 
-✮ Busy = iwc + dniuid
+✮ Busy = afk, iwec + dniuid /uf
 
-✮ Away = C+H freely / enc 
+✮ Away = C+H freely / int enc !
 
 ִ ࣪𖤐.ᐟ
 
