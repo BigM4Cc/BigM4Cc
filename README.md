@@ -1,4 +1,4 @@
-![_Inspiration quote about flamingo lays here_](https://github.com/user-attachments/assets/9ac00fbe-42e2-4a20-92d4-766ffa4862ab)
+![_ribbit thingy i made!! ](https://github.com/user-attachments/assets/9ac00fbe-42e2-4a20-92d4-766ffa4862ab)
 
 
 
@@ -69,4 +69,5 @@ you can int...JUST DON'T FRIEND ME ! I'm not looking for anymore friends, but it
 
 ࣪ ִֶָ☾.
 
-be kind to me, don't be an asshole, unless your my friend idgaf but make a good first impression when you first meet me, I will approve ^^
+be kind to me, don't be an asshole, unless your my friend idgaf but just<img width="736" height="414" alt="cc0c71778365a0d06e077ea5c202fbf9" src="https://github.com/user-attachments/assets/400eb3bc-eeef-44b2-8596-a825bd724b6e" />
+ make a good first impression when you first meet me.
