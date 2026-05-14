@@ -8,7 +8,7 @@
 
 🐸 <-- kin !!
 
-rmking strawpage soon >:3 
+strawpage rmk soon >:3 
 
 int with me, just don't friend me tyyy <3
 
