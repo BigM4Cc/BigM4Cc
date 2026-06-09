@@ -8,7 +8,7 @@
 
 🐸 <-- kin !!
 
-bang bang bang bang bang till I take you down down down down X3 
+after ep 9, Ribbit is me canon
 
 int with me, just don't friend me tyyy <3
 
